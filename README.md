@@ -1,4 +1,4 @@
 - I can do C++, Python and HTML
 - Member of the relive team
-- hate new music ('90 - 2010 the best)
+- Hate new music ('90 - 2010 the best)
 - I love the old look of websites and operating systems
